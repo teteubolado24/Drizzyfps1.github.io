@@ -1,18 +1,18 @@
-
+#AMOPROGRAMAÇÃO:heart_red:
 .Ola 👋
-.Meu nome é: Gustavo Henrique
-.Tenho: 16 anos 
-.Gosto muito de internet,Tecnologia
+.Meu nome é: Cleide
+.Tenho: 69 anos 
+.Gosto muito de internet,Tecnologia e Omega 3 da toptherm.
+.Amo suco de pozinho tang de caju
 
-🔭Trabalho em uma empresa de cadeados,fechaduras,maçaneta,chaves etc... 
-.Trabalho em um setor de desenvolvimento de fechadura Digital com nome de Pado labs. 
+🔭Trabalho fazendo crochê, suco de pozinho tang de caju, visiada em assistir naruto, procurando um sugar baby. 
+.Faço parte do clube "senhores com cheirinho de neutrox" 
 
-.https://pado.com.br/
+.https://neutrox.com.br/
 
-.REDES SOCIAIS speech_balloon
+.Instagram:@jairmessiasbolsonaro
+.Twitter: senhorinhacurte
 
-.Instagram:Gustavo_erm 
-.facebook: Gustavo Henrique
+🤔PARA DUVIDAS:mande foto frente e verso do seu cartão e digite seu cpf abaixo!
 
-🤔DUVIDA:mande um email. 
-gustavo.moura@padolabs.com.br
+gustavo.moura@padolabd.com.br
